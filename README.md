@@ -1,2 +1,2 @@
 # BraidsByDeja
-My love's website! 
+Hair Braiding Website! 
